@@ -1,4 +1,4 @@
-# Alec-B# 👋 Hi, I'm Alec Bowen 
+  Hi, I'm Alec Bowen 
 
 🎯 Cybersecurity Enthusiast | 🛡️ CompTIA Security+ (SY0-701) Certified | 💻 Always Learning
 
